@@ -2,9 +2,9 @@
 
 
 
-Olá! Bem vindo ao meu livro de receitas:hamburger: 
+Olá! Bem vindo ao meu livro de receitas:cow: :chicken:  
 
-- Strogonoff de carne
+- Strogonoff de carne :cow2:
 
 - Strogonoff de frango:chicken:
 
